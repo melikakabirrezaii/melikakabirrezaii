@@ -1,4 +1,4 @@
-# Hi there! I'm Melika 👋
+# Hi there! I'm Melika Kabirrezaii 👋
 
 ### 🎓 BSc Computer Science Student @ IAUCTB
 I am a dedicated Computer Science student at **Islamic Azad University, Central Tehran Branch**. I am passionate about learning new technologies and building a solid foundation in computer science. 🚀
